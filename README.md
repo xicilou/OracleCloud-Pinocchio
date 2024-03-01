@@ -31,7 +31,7 @@ However, it would be a pleasure to serve you in the near future. We can be reach
 
 OracleCloud  may ben unstable as what it says.
 
-Star this project! 
+Star this project! Thank you my friend!
 
 There are fewer lies in the world !
 
